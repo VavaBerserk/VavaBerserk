@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @VavaBerserk
 - 🌱 I’m currently working in Licence IMA at Grenoble
-- 📫 How to reach me : VavaBerserk#6644 on Discord
+- 📫 How to reach me : @vavaberserk (old: VavaBerserk#6644) on Discord
